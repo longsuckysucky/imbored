@@ -4,7 +4,7 @@ not with this you're not! it comes with games and precision client. all credit g
 also these are proxies (search engines that flip off the schools firewall and walks right past it). you can go on any site now!
   mine - https://unpopularengine.ml/
   friend - https://banana-dev.ml/
-  same friend - https://hu.banana-dev.ml/
+  same friend - https://banana-hub.tk/
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 it also comes with one song!
